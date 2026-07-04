@@ -16,7 +16,7 @@
 
 📋 更多评价见：[广工选课在线评价（金山文档）](https://www.kdocs.cn/l/chuswmg1fEtQ)
 
-**易经、茶文化** —— 慎选
+**易经、茶文化** —— 慎选  
 
 <details>
 <summary>点击展开评价截图</summary>
